@@ -1,0 +1,1 @@
+![[!-Obsidian Plugin MOC#123 Darlal Switcher Plus]]
