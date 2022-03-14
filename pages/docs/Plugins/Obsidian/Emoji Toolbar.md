@@ -1,1 +1,0 @@
-![[!-Obsidian Plugin MOC#123 Emoji Toolbar]]
